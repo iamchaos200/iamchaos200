@@ -11,7 +11,7 @@ You know what they say "Live as if you were to die tomorrow. Learn as if you wer
 + Favorite Anime: One Piece 🏴‍☠️
 + Favorite Dish: Tostadas de Pollo
 + Favorite Color: Blue 💙
-+ Favarotie Movie: Oppenheimer💣
++ Favorite Movie: Oppenheimer💣
 + Favorite Video Game: Destiny 1&2 🎮
 
 
