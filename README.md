@@ -9,7 +9,7 @@ You know what they say "Live as if you were to die tomorrow. Learn as if you wer
 
 **Intersting Things About Me**
 + Favorite Anime: One Piece 🏴‍☠️
-+ Favorite Dish: Tostadas de Pollo
++ Favorite Dish: Mole bruh
 + Favorite Color: Blue 💙
 + Favorite Movie: Oppenheimer💣
 + Favorite Video Game: Destiny 1&2 🎮
